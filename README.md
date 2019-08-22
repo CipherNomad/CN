@@ -1,2 +1,2 @@
 # CN
-Tech enthusiast navigating through the world of programming
+Just starting out, no project yet.
